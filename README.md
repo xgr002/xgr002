@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @xgr002
+- 👀 I’m interested in learning html/css
+- 🌱 I’m currently learning css
+- !!! How to reach me on Discord: Xgr002#0447 !!!
